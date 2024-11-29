@@ -3,6 +3,6 @@
 Message from Zhanna:
 
 
-Message from Denis:
+Message from Denis: Счастье есть!
 
 
