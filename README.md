@@ -7,5 +7,5 @@ Message from Denis: Счастье есть!
 
 
 
-![Sunrise Pic](C:\Users\zkurm\OneDrive\Desktop\sunrise.jpg)
+![Sunrise Pic](https://th.bing.com/th/id/OIP.-WOfcp9e7a5S11bufEB4xQHaHS?rs=1&pid=ImgDetMain)
 
