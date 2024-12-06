@@ -6,3 +6,6 @@ Message from Zhanna:
 Message from Denis: Счастье есть!
 
 
+
+![Sunrise Pic](C:\Users\zkurm\OneDrive\Desktop\sunrise.jpg)
+
